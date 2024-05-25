@@ -1,0 +1,6 @@
+- 👋 Hi, I’m sigmapatches.com
+- 👀 The <a href="https://sigmapatches.com/"><strong>SIGMA PATCHES</strong></a> INC. is crafting all type of custom patches in high and excellent quality for you. We are manufacturing custom embroidery patches and iron on patches, Leather Patches, Sublimated Patches, PVC Patches, Chenille Patches, Applique Patches, Woven Patches and Sequin Patches
+- 🌱 LOW PRICE AND HIGH QUALITY GUARANTIED
+- 💞️ 24/7 live support
+- 📫 Contact Us info@sigmapatches.com
+- ⚡ All Patches are made up of premium quality material with superb art work.
